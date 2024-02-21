@@ -1,2 +1,2 @@
 😀 Hi! Everyone!
-I'm a college student in Xidian University and I major in Telecommunication Engineering.
+I gradutad from Xidian University in 2023 and I am studying Electrical Engineering in Columbia Engineering.
